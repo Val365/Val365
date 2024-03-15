@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Artificial intelligence 
 - 💞️ I’m looking to collaborate on anything technology 
 - 📫 How to reach me via ucheegbunah@gmail.com 
-- 😄 Pronouns: Him
+- 😄 Pronouns: He, Him
 - ⚡ Fun fact: I love to read, learn everyday and make meaningful associations.
 
 <!---
